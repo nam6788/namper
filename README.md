@@ -1,0 +1,2 @@
+# namper
+dưới trung bình
